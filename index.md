@@ -9,7 +9,7 @@ It's crazy to think that it's the middle of El Niño October already. 33 degrees
 
 **No one** seem to bat an eye about it though. Where is the cool autumn breeze when I’m standing in an empty concrete yard? Cool, not cold, shivering or freezing, and certainly not wet like the ice in the fridge. *The ideal temperature range*.
 
-##
+## Next
 
 > When they (the weather) go low, we go high.
 >
