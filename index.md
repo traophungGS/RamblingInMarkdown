@@ -1,3 +1,8 @@
+---
+layout: default
+title: Rambling in Markdown - by Orthodoron
+---
+
 # Rambling in Markdown - Orthodoron
 
 ## Where is Winter?
